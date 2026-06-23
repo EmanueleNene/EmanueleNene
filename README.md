@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @EmanueleNene
-- 👀 I’m interested in ...
+- 👀 I’m interested in sustainable farming, engineering, code.
 - 🌱 I’m currently learning how to farm
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on engineering projects
 - 📫 How to reach me: emanueledallestro99@gmail.com
 - ⚡ Fun fact: ...
 
